@@ -1,4 +1,3 @@
-![logo](https://github.com/Prajjwaldeep/Prajjwaldeep/blob/main/Github%20Banner.png)
 <h1 align="center">Hi 👋, I'm Prajjwaldeep Ghosh</h1>
 <h3 align="center">Greetings of Mobocracy / Anarchy.</h3>
 
