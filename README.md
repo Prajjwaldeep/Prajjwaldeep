@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **prajjwaldeepghosh.leo@gmail.com**
 
-- 📄 Know about my experiences [http://bit.ly/3EpyHsA](http://bit.ly/3EpyHsA)
+- 📄 Know about my experiences [https://bit.ly/41KxcjK](https://bit.ly/41KxcjK)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
